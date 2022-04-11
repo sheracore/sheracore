@@ -7,4 +7,4 @@
 - 💬 Ask me about Python, Django, Big queries on RDBMS, Games :), and any tech related stuff.
 - 📫 How to reach me: +989107829251
 - 😄 Pronouns: He/His
-- ⚡ Fun fact: I'm a play rainbow six with sheracore account
+- ⚡ Fun fact: I'm rainbow six player with sheracore account.
